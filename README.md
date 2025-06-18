@@ -1,0 +1,2 @@
+# sahaflar_i-in_g-venlik_odakl-_e-ticaret_platformu
+sahaflar_için_güvenlik_odaklı_e-ticaret_platformu
